@@ -1,2 +1,4 @@
 # just-another-hello-world
-i really don't know what i am doing ;(
+
+
+i now know that potato chips are made of potatoes
