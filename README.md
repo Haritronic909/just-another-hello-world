@@ -1,2 +1,2 @@
 # just-another-hello-world
-i really don't know what i am doing ;(
+random guy here, just trying to undersatnd the fact that potato chips are actually made from potatoes(mind=blown!)
